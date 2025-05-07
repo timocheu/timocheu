@@ -1,6 +1,12 @@
 # About Me
-Self proclaimed delectable, delightful, distinctive, enjoyable, enticing, exquisite, heavenly, luscious, piquant, pleasant, rich, savory, spicy, sweet, tasty, tempting, yummy. I like to waste my time building projects that have no impact in the world. My traits("Self proclaimed") are graceful, elegant, fine, magnificent, majestic, proud, luxurious, glorious.
-
+Self proclaimed delectable, delightful, distinctive, enjoyable, enticing, exquisite, heavenly, luscious, piquant, pleasant, rich, savory, spicy, sweet, tasty, tempting, yummy. I like to waste my time building projects that have no impact in the world. Project manager of making ppt making. 
+- Champorado (Chocolate Rice Porridge) Ingredients
+    1 cup rice, sticky rice is a great variant
+    1 pinch of salt
+    6 cups of liquid. Use full cans of coconut milk and top up with water
+    1/2 cup cocoa powder, or 100-200g chocolate/tablea, adjust to taste
+    1/2 to 1 cup sugar, to taste
+  
 # About Me Also ( Wants in life )
 - Hot milk & star margarine
 - Leche Flan
