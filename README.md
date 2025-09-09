@@ -7,10 +7,9 @@ Self proclaimed delectable, delightful, distinctive, enjoyable, enticing, exquis
 - 1/2 cup cocoa powder, or 100-200g chocolate/tablea, adjust to taste
 - 1/2 to 1 cup sugar, to taste
   
-# About Me Also ( Wants in life )
+# ( Cravings of the year )
 - Hot milk & francis bread with margarine :milk_glass:
 - Leche Flan :custard:
 - Chicken Adobo to the max :poultry_leg:
 - Iphone16s Pro Max 1TB fully paid in Cash :iphone:
 - Pork Monggo Soup with chicharon bits on top :hot_face: :hot_face:
-- A laptop that has ram greater than 4gb :pray:
