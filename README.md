@@ -1,6 +1,12 @@
 # About Me
-Self proclaimed delectable, delightful, distinctive, enjoyable, enticing, exquisite, heavenly, luscious, piquant, pleasant, rich, savory, spicy, sweet, tasty, tempting, yummy. I like to waste my time building projects that have no impact in the world. Project manager of making ppt. 
-### Champorado (Chocolate Rice Porridge) Ingredients
+Self proclaimed delectable, delightful, distinctive, enjoyable, enticing, exquisite, heavenly, luscious, piquant, pleasant, rich, savory, spicy, sweet, tasty, tempting, yummy. 
+
+## Experience
+- Project manager of pancit canton (extra hot).
+- Hotdog Virginia
+- Corned beef with 2 eggs
+
+### Champorado Ingredients
 - 1 cup rice, sticky rice is a great variant
 - 1 pinch of salt
 - 6 cups of liquid. Use full cans of coconut milk and top up with water
