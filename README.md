@@ -1,6 +1,10 @@
 # About Me
 Self proclaimed delectable, delightful, distinctive, enjoyable, enticing, exquisite, heavenly, luscious, piquant, pleasant, rich, savory, spicy, sweet, tasty, tempting, yummy. 
 
+## Motto
+- It's a real life
+- Haydol krazy rapid boots
+
 ## Experience
 - Project manager of pancit canton (extra hot).
 - Hotdog Virginia
